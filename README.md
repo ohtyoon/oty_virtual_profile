@@ -1,1 +1,0 @@
-# oty_virtual_profile
